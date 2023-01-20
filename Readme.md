@@ -1,0 +1,3 @@
+# blue-Marketing_1400 ItLive tomonidan 2023-yil yaratilgan
+## Saytning asosiy maqsadi aloqalarni 
+To'g'irlashdan iborat!...
